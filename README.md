@@ -1,1 +1,1 @@
-![enter image description here](https://res.cloudinary.com/dgq2ohvtq/image/upload/v1597819606/Radovan_Stevanovic_-_CV_1_y3im7v.png)
+![enter image description here](https://res.cloudinary.com/dgq2ohvtq/image/upload/v1597907851/Radovan_Stevanovic_-_CV_2_jjrzhz.png)
